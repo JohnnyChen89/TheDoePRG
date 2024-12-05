@@ -1,2 +1,2 @@
 # TheDoePRG
-Download ur mom
+Please give us point
